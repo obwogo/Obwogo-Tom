@@ -1,2 +1,0 @@
-# me.github.io
-projecyt
